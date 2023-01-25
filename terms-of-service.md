@@ -1,6 +1,6 @@
-# **BE ENERGISED** TERMS OF SERVICE
+# **"BE ENERGISED"** TERMS OF SERVICE
 
-Last Updated: **[DATE]**
+Last Updated: **January 25, 2023**
 
 These terms of service ("Terms") apply to your access and use of **BE ENERGISED** (the "Service"). Please read them carefully.
 
